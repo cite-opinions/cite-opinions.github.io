@@ -24,6 +24,7 @@ The third tenet, as written here, is, as far as I can interpret, a reactionary e
 - restriction of access to affirmative gender identity support
 - forms of modesty regulation (like banning nudist practices)
 - exploitation and human trafficking
+
 However, as written, this is as far as it goes.
 
 CGP Grey expresses what I intend to say very well in his video, [I, Phone](https://www.youtube.com/watch?v=e-ZpsxnmmbE).
